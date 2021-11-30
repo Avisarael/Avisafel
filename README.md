@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Avisarael
-- 👀 I’m interested in you, because why are seeing this? What could possibly have brought you here? What... are... you?
+- 👀 I’m interested in you, because why are seeing this? What could possibly have brought you to this cursed land? What... are... you?
 - 🌱 I’m currently learning ... nerd stuff, because apparently nerds make money.
 - 💞️ I’m looking to collaborate on ... nothing at the moment. 
 - 📫 How to reach me ... zeruelapod@gmail.com
